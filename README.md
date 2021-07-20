@@ -7,6 +7,6 @@ up to date fortnite offsets (usually).
 📝 Ask me for permission before uploading elsewhere thanks.
 
 ## Info
-Updated as of 10/07/2021
+Updated as of 22/07/2021
 
 Discord (No support): http://overhax.fun/join.html
