@@ -7,7 +7,7 @@ up to date fortnite offsets (usually).
 📝 Ask me for permission before uploading elsewhere thanks.
 
 ## Info
-Updated as of 16/10/2021
+Updated as of 26/10/2021
 
 Some classes and structures appear to be distorted. I'll look into it when I have time, and I apologise for any trouble.
 
